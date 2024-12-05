@@ -1,0 +1,10 @@
+dgbtyujmn
+y5hrgbdsffr
+275yhscv
+b nutjkr8
+fvbnteyjndbg
+t6254gyh
+bnhnje5jyndhfsgbvqt
+2u6uhfdvbdsfv
+adscetbhy53uhbg
+git status
